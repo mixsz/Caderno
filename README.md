@@ -1,1 +1,5 @@
-Do semestre 4 pra frente... (o 3 só tem Arquitetura de Software e Programação Orientada a Objeto)
+Obs:
+
+* nao tem semestre 1
+* o semestre 2 e 3 nao foi eu que anotei
+* o de ecologia so semestre 4 tbm nao
